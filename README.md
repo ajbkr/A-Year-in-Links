@@ -4,6 +4,27 @@ A Year in Links
 Listed in chronological order, these links represent the material I read in the year following my enlightenment or illumination.
 
 * ...
+* http://en.wikipedia.org/wiki/Sphinx
+* http://wisdomancient.com/consciousness/
+* http://whofortedblog.com/2012/07/17/practical-guide-magical-consciousness-part-1/
+* http://www.wingsforthespirit.com/developing-your-psychic-abilities.htm
+* http://annasayce.com/developing-claircognizance
+* http://kundalinisolutions.com/helping-yourself/lifestyle-suggestions/
+* http://consciouslifenews.com/alkaline-foods-decalcify-pineal-gland/
+* http://www.stevepavlina.com/blog/2005/04/levels-of-consciousness/
+* http://www.ipersonic.com/type/DI.html
+* http://personalexcellence.co/blog/map-of-consciousness/
+* http://personality-development.org/theories-personality-development/david-hawkins
+* http://www.fastcompany.com/3028712/7-habits-of-highly-emotionally-intelligent-people
+* http://attainingpie.com/mystery/
+* http://endless-satsang.com/spiritual-enlightenment-spiritual-awakening.htm
+* http://www.awakenacademy.org/
+* http://www.aypsite.org/297.html
+* http://www.shiningworld.com/Home%20Page%20Links/Kundalini%20and%20Vedanta.htm
+* http://en.wikipedia.org/wiki/Shanti
+* http://en.wikipedia.org/wiki/Dharma
+* https://www.theosophical.org/publications/1595
+* https://medium.com/hachette-summer-reading-sampler/human-1-0-99cd23872aad
 * https://alumni.stanford.edu/get/page/magazine/article/?article_id=32124
 * http://en.wikipedia.org/wiki/Wetware_%28brain%29
 * http://en.wikipedia.org/wiki/Malleability_of_intelligence
