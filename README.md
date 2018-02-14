@@ -1,9 +1,9 @@
 A Year in Links
 ===============
 
-Listed in chronological order, these links represent the material I read in the year following my enlightenment or illumination.
+Listed in chronological order, these links represent the material I read in the
+first year following my enlightenment or illumination.
 
-* ...
 * http://higherselfyoga.org/exercises.html
 * http://spirit-animals.com/dolphin/
 * http://poderanimalpower.blogspot.co.uk/2009/07/tigre-blanco-white-tiger.html
